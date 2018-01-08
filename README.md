@@ -1,2 +1,0 @@
-# dallar-branding
-Dallar Branding
